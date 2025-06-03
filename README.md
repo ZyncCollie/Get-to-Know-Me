@@ -30,7 +30,7 @@
 
 > Fandoms / Communities : My Little Pony, Furry, Flamingo (Albert), Therian, etc. (There's definitely more, I may gave forgotten some.)
 
-> Sexuality / Gender : TransMasculine Demiboy, Gay (MLM), Asexual, Reciproromantic
+> Sexuality / Gender : TransMasculine Demiboy, Gay (MLM), Recipromantic
 
 
 
