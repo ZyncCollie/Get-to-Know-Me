@@ -12,11 +12,15 @@
 
 > Hello! I am Zync, Zync Collie! Or you may call me Elliot.
 
-> DNI : Racists, homophobic, xenophobic, paraphiles, zoophiles, pedophiles, ***proshippers.***
+> DNI : Racists, homophobic, xenophobic, paraphiles, zoophiles, pedophiles, ***proshippers.*** (Especially you, Lefty. Go fuck yourself, dude. You betrayed me and my friends. I can't believe I even used to call you my friend, you're such a fucking disgrace. Get help, words cannot express how upset I am and will always be with you.)
 
 > INT : Furries, bronies, etc. (If you aren't problematic, I have no problem with you!)
 
 > Other than Pony.Town, I play : VRChat, Splatoon, Roblox (Rarely)
+
+
+> Safe Ppl : Bee ❤️, Val ❤️, Shower_Thoughts ❤️, Cryber Brightz System, Jill PT & Gacha
+
 
 > BYI : I sometimes make jokes that may or may not be offensive to certain people, like, "Kms." or "Kys.", although, of course I am never serious. I also can make sexual jokes depending on person. Please keep this in mind.
 
