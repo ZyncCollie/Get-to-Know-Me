@@ -19,7 +19,7 @@
 > Other than Pony.Town, I play : VRChat, Splatoon, Roblox (Rarely)
 
 
-> Safe Ppl : Bee ❤️, Val ❤️, Shower_Thoughts ❤️, Cryber Brightz System, Jill PT & Gacha
+> Safe Ppl : Bee ❤️, Val ❤️, Shower_Thoughts ❤️, Cryber Brightz System ❤️, Jill PT & Gacha
 
 
 > BYI : I sometimes make jokes that may or may not be offensive to certain people, like, "Kms." or "Kys.", although, of course I am never serious. I also can make sexual jokes depending on person. Please keep this in mind.
