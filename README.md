@@ -12,7 +12,7 @@
 
 > Hello! I am Zync, Zync Collie! Or you may call me Elliot.
 
-> DNI : Racists, homophobic, xenophobic, paraphiles, zoophiles, pedophiles, ***proshippers.*** 
+> DNI : Racists, homophobic, xenophobic, paraphiles, zoophiles, pedophiles, dark/comshippers
 
 > INT : Furries, bronies, etc. (If you aren't problematic, I have no problem with you!)
 
